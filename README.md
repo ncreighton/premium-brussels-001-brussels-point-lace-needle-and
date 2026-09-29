@@ -1,0 +1,2 @@
+# premium-brussels-001-brussels-point-lace-needle-and
+Tired of losing your place among a tangle of bobbins and needles? The Brussels Point Lace Needle and Bobbin Hybrid Tracker brings order to your lace-making chaos, so you can focus on the art, not the admin.  This Notion template solves the unique pain point of managing both needle and bobbin threads in Brussels point lace. It replaces scattered not
